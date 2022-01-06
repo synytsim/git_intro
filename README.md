@@ -1,2 +1,1 @@
 Mykyta Synytsia
-9
